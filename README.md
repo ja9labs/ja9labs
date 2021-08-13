@@ -6,10 +6,10 @@ I'm currently learning programming, but my focus for now is user experience, bra
    <h6>I had a carreer in design since university and have been done projects that help companies grow your communication and design teams.
 
 
-Go to ✨ behance.net/ja9lopes ✨ to check design projects.
+Open ✨ ja9labs.myportfolio.com ✨ to check UX Design projects.
 
 
 Here are some funny things about my job:
 - I'm journalist but I don't like news on tv
 - Some day I woke up and I was a UX designer
-- 🌱 I have a brand nature vibe [ecoCREW] @ecocria.br
+- 🌱 I have a brand nature vibe [ecoCREW] ecocriabrasil.com
