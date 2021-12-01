@@ -11,5 +11,4 @@ Open ✨ ja9labs.myportfolio.com ✨ to check UX Design projects.
 
 Here are some funny things about my job:
 - I'm journalist but I don't like news on tv
-- Some day I woke up and I was a UX designer
-- 🌱 I have a brand nature vibe [ecoCREW] ecocriabrasil.com
+- Some day I woke up and I was a product designer and now I'm trying to complicate my polemic lab
