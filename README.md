@@ -1,5 +1,5 @@
 ### Hi there 👋
-I'm currently learning programming, but my focus for now is user experience, branding and interfaces.
+I'm currently learning programming, but my focus for now is product design, ux and interfaces.
 <main>
  <conteiner>
   <h4>I'm Janine and I graduate in journalism and had an mba/especialist in art direction.</h2>
